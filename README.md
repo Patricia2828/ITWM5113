@@ -1,2 +1,2 @@
 # ITWM5113
-Group Assignment - Patricia, Pragatiswaran &amp; Sharmila
+Group Assignment - Patricia, Pragatiswaran &amp; Sarmila
